@@ -1,2 +1,2 @@
 # bindu
-bindu too busy
+bindu too busy .she is a doctor
